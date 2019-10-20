@@ -10,12 +10,12 @@ Serdecznie pozdrawiamy
 ###
 Magdalena i Artur Jasiakowie
 ###
-[Ślub](url)
+[Ślub](https://drive.google.com/open?id=1A7qJXR4QJ5WgJVGvRVZniE17thpjf7mQ)
 ###
-[Wesele](url)
+[Wesele](https://drive.google.com/open?id=1g6qSUsJuhxXFeKoEZbDNp-Zj450il6Nl)
 ###
-[Sesja](url)
+[Sesja](https://drive.google.com/drive/folders/1nfKb-L8qjdTAyC2UObY1_2t33K1KosBL?usp=sharing)
 ###
-[Podróże](url)
+[Podróże](https://drive.google.com/open?id=1wkPPJFeZubGbY1i-YJYPffLfj5ABVPga)
 ##
 [edit](https://github.com/jasiakowie/galeria/edit/master/index.md) 
