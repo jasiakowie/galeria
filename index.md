@@ -2,7 +2,7 @@ Kochani!
 
 
 
-Bardzo dziękujemy, że zechcieliśce towarzyszyć nam w tych ważnych i wspaniałych dla nas chwilach zaślubin oraz wesela -:)
+Bardzo dziękujemy, że zechcieliśce towarzyszyć nam w tych ważnych i wspaniałych chwilach naszych zaślubin oraz wesela -:)
 
 Poniżej znajdują się się linki do galerii, w których można obejrzeć i pobrać interesujące Was zdjęcia.
 
@@ -13,6 +13,8 @@ _Magdalena i Artur Jasiakowie_
 
 
 ![Image](http://dagat.eu/download/am.jpeg)
+
+### Galerie:
 
 - [Ślub](https://drive.google.com/open?id=1A7qJXR4QJ5WgJVGvRVZniE17thpjf7mQ)
 - [Wesele](https://drive.google.com/open?id=1g6qSUsJuhxXFeKoEZbDNp-Zj450il6Nl)
