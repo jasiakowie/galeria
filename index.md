@@ -18,5 +18,7 @@ _Magdalena i Artur Jasiakowie_
 - [Wesele](https://drive.google.com/open?id=1g6qSUsJuhxXFeKoEZbDNp-Zj450il6Nl)
 - [Sesja](https://drive.google.com/drive/folders/1nfKb-L8qjdTAyC2UObY1_2t33K1KosBL?usp=sharing)
 - [Podróże](https://drive.google.com/open?id=1wkPPJFeZubGbY1i-YJYPffLfj5ABVPga)
+
 ___
+
 [edit](https://github.com/jasiakowie/galeria/edit/master/index.md) 
