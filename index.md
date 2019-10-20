@@ -6,7 +6,7 @@ Poniżej znajdują się się linki do galerii, w których można obejrzeć i pob
 ###
 Serdecznie pozdrawiamy
 ###
-Magdalena i Artur Jasiakowie
+_Magdalena i Artur Jasiakowie_
 ###
 ![Image](http://dagat.eu/download/am.jpeg)
 ###
